@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @BNiteshG
 - 👀 I’m interested in making apps , AI Apps 
-- 🌱 I’m currently studying in 8th Standard
+- 🌱 I’m currently studying in 10th  Standard
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me . 
 - E-mail - bniteshgehloth@gmail.com
